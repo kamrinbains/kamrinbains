@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Kamrin Bains
 - 👀 I’m interested in learning new things
-- 🌱 I’m currently set to graduate in Fall 2026
+- 🌱 I’m currently set to graduate in Spring 2026
 - 📫 Reach me at bainskamrin@gmail.com
 - 😄 Pronouns: He/him
 
